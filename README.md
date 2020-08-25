@@ -9,4 +9,6 @@ https://rss.onlinelibrary.wiley.com/doi/10.1111/1740-9713.01413
 
 https://blogs.sciencemag.org/pipeline/archives/2020/08/24/convalescent-plasma-the-science-and-the-politics
 
+https://www.npr.org/sections/health-shots/2020/08/25/905792261/fdas-hahn-apologizes-for-overselling-plasmas-benefits-as-a-covid-19-treatment
+
 
