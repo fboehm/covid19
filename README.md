@@ -11,4 +11,7 @@ https://blogs.sciencemag.org/pipeline/archives/2020/08/24/convalescent-plasma-th
 
 https://www.npr.org/sections/health-shots/2020/08/25/905792261/fdas-hahn-apologizes-for-overselling-plasmas-benefits-as-a-covid-19-treatment
 
+https://www.npr.org/2020/08/25/905926942/researcher-criticizes-fdas-exaggeration-of-plasmas-efficacy-in-covid-19-treatmen
+
+
 
