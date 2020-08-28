@@ -13,5 +13,7 @@ https://www.npr.org/sections/health-shots/2020/08/25/905792261/fdas-hahn-apologi
 
 https://www.npr.org/2020/08/25/905926942/researcher-criticizes-fdas-exaggeration-of-plasmas-efficacy-in-covid-19-treatmen
 
+https://www.youtube.com/watch?v=ziT9aphxsHE&feature=youtu.be
+
 
 
